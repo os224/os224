@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @os224
 - 👀 I’m interested in procrastinating
-- 🌱 I’m currently learning how to survive
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me ... dc os²²⁴#1875
+- 🌱 I’m currently learning how to hustle
+- 💞️ I’m looking to collaborate on collecting retro garbage
+- 📫 How to reach me ... dc os224#0965
 
 <!---
 os224/os224 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
