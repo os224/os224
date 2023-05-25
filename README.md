@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @os224
-- 👀 I’m interested in procrastinating
-- 🌱 I’m currently learning how to hustle
-- 💞️ I’m looking to collaborate on collecting retro garbage
+- 👀 I’m interested in hustling
+- 🌱 I’m currently learning how to become even more sigma
+- 💞️ I’m looking for some hot goth gf
 - 📫 How to reach me ... dc os224#0965
 
 <!---
