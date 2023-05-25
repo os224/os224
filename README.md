@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @os224
 - 👀 I’m interested in hustling
 - 🌱 I’m currently learning how to become even more sigma
-- 💞️ I’m looking for collaborate on watching trailer park boys with some goth gf
+- 💞️ I’m looking to collaborate on watching trailer park boys with some hot goth gf
 - 📫 How to reach me ... dc os224#0965
 
 <!---
